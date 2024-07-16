@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Share Our Knowledge Each Other. 
 - 📫 How to reach me ... https://www.linkedin.com/in/vasanthamohan-r-16b981257/
 - 😄 Pronouns: ... He
-- ⚡ Fun fact: ... 💪
+- ⚡ Fun fact: ... I am 💪
 
 <!---
 Vasanth-192121/Vasanth-192121 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
